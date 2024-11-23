@@ -3,9 +3,7 @@
 ## Contact Information
 
 - **Name**: Umesh Gajjar  
-- **Location**: Gandhinagar, Gujarat  
-- **Email**: urvishgajjar6@gmail.com  
-- **Phone**: +91 972 469 0192  
+- **Email**: umeshgajjar202@gmail.com  
 
 ---
 
