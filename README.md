@@ -3,7 +3,7 @@
 ## Contact Information
 
 - **Name**: Umesh Gajjar  
-- **Email**: umeshgajjar202@gmail.com  
+- **Email**: urvishgajjar6@gmail.com  
 
 ---
 
